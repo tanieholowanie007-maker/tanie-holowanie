@@ -1,0 +1,1 @@
+Tutaj możesz dodać favicony lub logo w formacie PNG.
